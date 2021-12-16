@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @peHenr
+- 👀 I’m interested in PC builds and Skateboarding
+- 🌱 I’m currently learning nothing ig im just living
